@@ -2,7 +2,7 @@
 
 <p align="center">
 <b><samp> Follow me :</samp></b><br>
-  <a href="cracked.to/Zekh">Cracked.to</a> |
+  <a href="https://cracked.to/Zekh">Cracked.to</a> |
   <a href="https://www.youtube.com/channel/UCl-6uAXenlJFFDUa_Fu07SQ">Youtube</a>
   <br>
   <br>
